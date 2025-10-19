@@ -256,3 +256,7 @@ Once approved:
 **All materials reflect his redline feedback and address his concerns.**
 
 **Ready to execute when he gives the green light.**
+
+---
+
+**Price Baseline Updated (October 19, 2025):** All figures in these documents are recalculated at $4,240/oz (~$136.32/g).
